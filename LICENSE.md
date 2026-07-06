@@ -1,4 +1,4 @@
-# 
+# Atualizado Process Explorer extensões para Mac OS | Personalizado Process Explorer extensões para PC Windows. Com analise de dados historicos e ajustes do Windows — otimizado para máximo desempenho em cada plataforma.
 
 
 
